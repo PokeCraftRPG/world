@@ -1,0 +1,7 @@
+La **Frandelys** est bien plus qu’un simple cours d’eau traversant **[Rivantan](Rivantan.md)** : elle incarne l’**âme vivante** de la ville et de ses habitants. Son nom puise ses racines dans trois notions fondamentales : la **franchise**, symbole d’ouverture et de sincérité des gens de Quéron ; le **lys**, emblème de fierté et d’élégance ; et les **délices**, rappel des plaisirs simples et des festivités qui animent ses rives.
+
+Inspirée par le tracé sinueux de la rivière **Saint-François**, la Frandelys serpente à travers vallées et parcs, offrant à chaque détour des paysages accueillants où nature et communauté cohabitent en harmonie. Ici, la pêche est délaissée au profit du **partage**, des **jeux nautiques**, et des **spectacles lumineux** qui illuminent ses eaux lors des soirées estivales. Kayaks colorés, régates amicales et feux d’artifice reflètent la vocation de la Frandelys : une rivière dédiée au **plaisir de vivre ensemble**.
+
+Ses berges, bordées d’érables et de sentiers fleuris, accueillent marchés, festivals et promenades familiales. La Frandelys est célébrée comme un espace où l’on se retrouve, où la sincérité des échanges coule aussi naturellement que son eau claire.
+
+Symbole de **fierté régionale**, la Frandelys rappelle à tous que les plus beaux trésors ne se pêchent pas, mais se vivent, au rythme des **délices partagés** et des traditions festives.
